@@ -1,13 +1,22 @@
-![link](https://file.garden/aWXs9X2vkSBfdVZ-/6088c5243bd578dedac561a26f7edc2e.webp)
+<div align="center"> 
 
-${\textsf{\color{#09125a}Yolooo i'm sonic YES sonic himself aw yeahh i'm a he/him}}$    
-${\textsf{\color{#0d329d}This is a wip but yk how it go}}$    
-${\textsf{\color{#1033f5}I'm cool wit nicknames or anything really}}$    
-${\textsf{\color{#6b97f8}ion got a dni criteria atm but basic dni INCLUDING ex friends}}$     
-${\textsf{\color{#6b97f8}and ANYTHING thats gotta do with being sexual thanks.}}$    
-${\textsf{\color{#b8d1f9}mostly just dont int w me if u go against my morals}}$   
-${\textsf{\color{#b8d1f9}cause i WILL fight for what i believe in, even if we're friends}}$    
-${\textsf{\color{#fffff}yapyaappps okay yeah thats it rn, c+h}}$    
-and w2i encouraged im pretty nice if i do say so myselfff..
+![link](https://file.garden/aWXs9X2vkSBfdVZ-/Untitled161_20260926153628.webp)
 
- ![link](https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_25_0oh_Kleki.png)
+<details><summary><b> 
+    </b> </summary>
+
+![link](https://file.garden/aWXs9X2vkSBfdVZ-/cbad49719b7a1126741e1ee436441463.webp)
+
+${\textsf{\color{#09125a}This is still a wip but heres my dni yupp}}$    
+${\textsf{\color{#0d329d}Pro/Dark shippers/fics AS WELL AS shipping incest shit die die die}}$    
+${\textsf{\color{#1033f5}Ex friends, If we ended on neutral terms then hmu!!}}$    
+${\textsf{\color{#6b97f8}if you make sexual jokes PLEASE dni i'm easily triggered by it}}$      
+${\textsf{\color{#b8d1f9}i dont have an age dni i just want EVERYONE to begwi but i'd prefer -15 n 20+ to iwecuf}}$      
+${\textsf{\color{#fffff}For my own sanity dni if you go against my morals, Idgaf if we're friends if your into nasty shit}}$     
+${\textsf{\color{#fffff}i WILL call you out on it.}}$       
+${\textsf{\color{#b8d1f9}If you excuse actions/things people support/do just because their your friend }}$    
+${\textsf{\color{#6b97f8}If you age up CHILDREN/TEENAGER characters esp to sexualize them}}$    
+${\textsf{\color{#1033f5}Drama in general bc i CANNOT deal with that bull}}$    
+${\textsf{\color{#0d329d}yes this is long but its a dni/byi for a reason lmao🤞🏾🤞🏾}}$   
+
+   </details> 
